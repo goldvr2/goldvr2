@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @goldvr2
+- 👀 I’m interested in getting to play gorrila tag
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on vr 
+- 📫 How to reach me: measage me on tiktok
